@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Pranaligade1
+- 👋 Hi, I’m @Pranaligade12
 - 👀 I’m interested in any system
-- 🌱 I’m currently learning 2nd yer Engeeniaring..
+- 🌱 I’m currently learning 3rd yer Engeeniaring..
 - 💞️ I’m looking to collaborate on ..github.
 - 📫 How to reach me ..NA.
 
